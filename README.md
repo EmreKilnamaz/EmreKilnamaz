@@ -1,0 +1,6 @@
+- Hi,ı'm @EmreKılnamaz
+- I'm 18 years old 
+- I'm a information technology student
+- I'm interested software and application developmentü
+- You can reach this address : emrekilnamaz@hotmail.com
+-  I am open to all kinds of information about this profession
